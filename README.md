@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Quilieanne
+- 👀 I’m interested in many thingd, like games, riddles or sports.
+- 🌱 I’m currently learning the basics of coding.
+- 💞️ I’m looking to collaborate on nothing, just want your help if I struggle with something please.
